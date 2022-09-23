@@ -19,6 +19,8 @@ Image taken from [displays2go.com](https://www.displays2go.com/Industry/Retail-F
 ![image](https://user-images.githubusercontent.com/111167621/191671606-6f9ff616-b69d-412c-9678-d01967d75300.png)
 
 
+![image](https://user-images.githubusercontent.com/111167621/191884193-d5d22cc8-7fc0-4a6e-adf6-865119feec78.png)
+
 ## Conclusion
 
 ### For further information
